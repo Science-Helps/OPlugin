@@ -1,2 +1,11 @@
 # OPlugin
-The best plugin by far
+
+# Features
+Simple Crasher to troll your friends
+Fun
+Simple
+Easy
+Worth Downloading!
+
+
+IMPORTANT: JUST DOWNLOAD THE CUSTOM VENCORD PLUGIN TO DISCORD, RIGHT NEXT TO THE MUTE BUTTON NEXT TO YOUR PROFILE A BUTTON WILL APPEAR. WHENEVER YOUR IN A VC WITH YOUR FRIENDS, JUST PRESS THE BUTTON AND WATCH THE CHAOS UNFOLD. 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
